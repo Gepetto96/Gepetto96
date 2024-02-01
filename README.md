@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Gepetto96
+- 👀 I’m interested in sports
+- 🌱 I’m currently learning FP DAM
+- 💞️ I’m looking to collaborate on many people
+- 📫 How to reach me julihg1996@hotmail.com
+- ⚡ Fun fact: I don´t know 
